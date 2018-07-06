@@ -4,12 +4,14 @@
 
 Джей Шри Матаджи!
 
-## Когда?
+**Когда:** 27-29 июля 2018 года
+**Где:** парк-отель "Олимпиец" (Химки)
 
-27-29 июля 2018 года
+
+[![Watch the video](https://raw.github.com/GabLeRoux/WebMole/master/ressources/WebMole_Youtube_Video.png)](http://youtu.be/vt5fpE0bzSY)
 
 ## Регистрация
-Для бронирования места, пожалуйста, зарегистрируйтесь заранее по [ссылке](https://docs.google.com/forms/d/e/1FAIpQLSeGaoUfk8g8wlTSaljn8jTcOmP_qDbR7SSZSLsmYtWDfi33WA/viewform)
+Для бронирования места, пожалуйста, зарегистрируйтесь заранее по [ссылке](https://docs.google.com/forms/d/e/1FAIpQLSeGaoUfk8g8wlTSaljn8jTcOmP_qDbR7SSZSLsmYtWDfi33WA/viewform).
 
 ## Стоимость
 
