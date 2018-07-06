@@ -40,4 +40,4 @@
 
 [![Watch the video](https://raw.githubusercontent.com/SYRussia/SYRussia.github.io/master/screen.png)](https://www.youtube.com/watch?v=9XDNJbZVq_g)
 
-Джей Шри Матаджи!  
+## Джей Шри Матаджи!  
