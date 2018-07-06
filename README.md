@@ -4,6 +4,7 @@
 
 
 **Когда:** 27-29 июля 2018 года.
+
 **Где:** парк-отель "Олимпиец" (Химки).
 
 
@@ -21,9 +22,9 @@
 - Для пенсионеров, не работающих и юва-шакти: 700 рублей
 - Для работающих: 1200 рублей
 
-**Контакты**
+## Контакты
 Вопросы по регистрации и оплате: +7(962)915-70-40 Татьяна Владимировна Голикова
 Общие вопросы и как добраться: +7(929)558-06-69 Галина Ивановна Антонова
 По любым вопросам: sahajfest@gmail.com
 
-[![Watch the video](https://raw.github.com/GabLeRoux/WebMole/master/ressources/WebMole_Youtube_Video.png)](https://www.youtube.com/watch?v=9XDNJbZVq_g)
+[![Watch the video](https://drive.google.com/file/d/1TSRqPMFdL0f_f1ypK68GdiLvJRR46Bt2/view?usp=sharing)](https://www.youtube.com/watch?v=9XDNJbZVq_g)
