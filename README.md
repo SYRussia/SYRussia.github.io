@@ -27,4 +27,4 @@
 Общие вопросы и как добраться: +7(929)558-06-69 Галина Ивановна Антонова
 По любым вопросам: sahajfest@gmail.com
 
-[![Watch the video](SYRussia.github.io/Screen Shot 2018-07-06 at 20.15.22.png)](https://www.youtube.com/watch?v=9XDNJbZVq_g)
+[![Watch the video](https://raw.githubusercontent.com/SYRussia/SYRussia.github.io/master/screen.png)](https://www.youtube.com/watch?v=9XDNJbZVq_g)
