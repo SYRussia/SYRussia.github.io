@@ -8,6 +8,9 @@
 
 27-29 июля 2018 года
 
+## Регистрация
+Для бронирования места, пожалуйста, зарегистрируйтесь заранее по [ссылке](https://docs.google.com/forms/d/e/1FAIpQLSeGaoUfk8g8wlTSaljn8jTcOmP_qDbR7SSZSLsmYtWDfi33WA/viewform)
+
 ## Стоимость
 
 **Проживание**
