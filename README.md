@@ -1,7 +1,7 @@
 Дорогие братья и сестры!  
 Мы рады видеть всех вас на традиционном фестивале, который в этом году совпадает с международной пуджей Гуру.  
 
-![ ](https://raw.githubusercontent.com/SYRussia/SYRussia.github.io/master/GuruPuja%2C%2083%20-14.jpg)
+![ ](https://raw.githubusercontent.com/SYRussia/SYRussia.github.io/master/356%20Guru%2001.jpg)
 
 **Когда:** 27-29 июля 2018 года.  
 **Где:** парк-отель "Олимпиец" (Химки).
