@@ -7,7 +7,7 @@
 **Где:** парк-отель "Олимпиец" (Химки).
 
 ## Регистрация
-Для бронирования места, пожалуйста, зарегистрируйтесь заранее по [ссылке](https://docs.google.com/forms/d/e/1FAIpQLSeGaoUfk8g8wlTSaljn8jTcOmP_qDbR7SSZSLsmYtWDfi33WA/viewform).
+Для бронирования места, пожалуйста, зарегистрируйтесь **до 20 июля** по [ссылке](https://docs.google.com/forms/d/e/1FAIpQLSeGaoUfk8g8wlTSaljn8jTcOmP_qDbR7SSZSLsmYtWDfi33WA/viewform).
 
 ## Программа
 
